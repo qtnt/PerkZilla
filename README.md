@@ -58,7 +58,7 @@ Put simply, it’s the quickest and simplest way to start getting ultimately mor
 
 So whether you’re promoting contests, lead webpages, sales web pages or other things, PerkZilla can help to make your viral promotions an enormous success.
 
-Take a look right at www.perkzilla.com
+Take a look right at perkzilla.com
 
 And do it, because this is actually the best way to obtain additional traffic, sales, clients and public love!
 Thanks a lot for reading my Perkzilla Review.
