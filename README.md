@@ -1,5 +1,6 @@
 # PerkZilla
 http://twotreview.com/perkzilla-review-know-what-you-get-before-you-hit-the-buy-button/
+
 Have You USED This Tool for Creating Successful Viral Promotions Massively?
 
 I want to ask you a question…
@@ -18,9 +19,7 @@ Product: PerkZilla
 Launch Time: 2017-Nov-07
 Launch Time: 10:00 EST
 Front-End Price: $197
-Commission: 50%
-JV Web page: http://perkzilla.com
-Affiliate Network: JVZoo 
+web page: perkzilla.com
 Niche: General 
 
 Guess what happens?
@@ -59,7 +58,7 @@ Put simply, it’s the quickest and simplest way to start getting ultimately mor
 
 So whether you’re promoting contests, lead webpages, sales web pages or other things, PerkZilla can help to make your viral promotions an enormous success.
 
-Take a look right at www now.perkzilla.com
+Take a look right at www.perkzilla.com
 
 And do it, because this is actually the best way to obtain additional traffic, sales, clients and public love!
 Thanks a lot for reading my Perkzilla Review.
